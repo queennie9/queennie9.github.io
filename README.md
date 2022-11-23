@@ -1,6 +1,10 @@
-**Hello! I'm Queennie Borja and you can call me Queennie and welcome to my github page.**
+Hello! I'm Queennie Borja and you can call me Queennie and welcome to my github page.
 -----------------------------------------------------------------------------------------
 
-![alyssavaldez_2022-10-13_17-23-13](https://user-images.githubusercontent.com/118230406/203449667-4a839247-e821-45da-846a-0249a70e5cb6.jpg)
+**Volleyball**
 
-- Alyssa Caymo Valdez is a Filipino volleyball player who currently plays for the Creamline Cool Smashers. She was a member of the collegiate varsity women's volleyball team of Ateneo de Manila University in both indoor and beach volleyball.
+
+
+   **What is Volleyball?**
+- Volleyball is a team sport in which two teams of six players are separated by a net. Each team tries to score points by grounding a ball on the other team's court under organized rules. It has been a part of the official program of the Summer Olympic Games since Tokyo 1964.
+- The history of volleyball in the Philippines refers to the history of volleyball in the Philippines as a recreation and as a sport. Philippine volleyball history began in 1910 when the Philippines was a United States territory. Many people became famous because of their skills in volleyball, like Alyssa Valdez, Deanna Wong, and Kim Kianna Dy.
