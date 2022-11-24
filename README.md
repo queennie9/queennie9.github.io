@@ -1,4 +1,4 @@
-Hello! I'm Queennie Borja and you can call me Queennie and welcome to my github page.
+Hello! I'm Queennie Borja and welcome to my github page.
 -----------------------------------------------------------------------------------------
 
 **Volleyball**
